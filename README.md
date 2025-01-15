@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @JustCasul
 - 👀 I’m interested in Feet
-- 🌱 I’m currently researching Feet
-- 💞️ I’m looking to collaborate on ur Feet x My Cock combo
-- 📫 How to reach me Justcasul everywhere
+- 🌱 I’m currently researching nothing at all
+- 💞️ I’m looking to collaborate on lovense remote x duo queue combo
+- 📫 How to reach me? "JustCasul" everywhere
 - 😄 Pronouns: Worth/less
 - ⚡ Fun fact: I like Feet
 
