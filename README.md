@@ -6,7 +6,9 @@
 - 😄 Pronouns: Worth/less
 - ⚡ Fun fact: I enjoy Footjob!
 
-- On a more serious note: 9/11 was an inside job
+- ✈️ On a more serious note: 9/11 was an inside job
+
+- 🫶 GaLiGrü!
 
 <!---
 JustCasul/JustCasul is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
